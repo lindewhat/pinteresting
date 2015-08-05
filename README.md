@@ -1,4 +1,4 @@
-# LindeWHAT up in this
+# LindeWHAT is now the ruler of all
 
 This is something for
 [your momma](https://billetto.dk)
