@@ -1,8 +1,8 @@
 # LindeWHAT is now the ruler of all
 
 This is something for
-[your momma](https://billetto.dk)
+[myself](https://billetto.dk) to use
 
-by [deez nutz](http://youknowit.com)
+made by [my ater-ego](http://youknowit.com)
 
 Just testing...
